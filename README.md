@@ -1,4 +1,4 @@
-##### [❓ Yardıma mı ihtiyacınız var?]DISCORD Adresim: draxty
+##### [❓ Yardıma mı ihtiyacınız var?]DISCORD Adresim: teshcik
 
 # 🔎 - Discord Rozet Tarayıcı:
 
